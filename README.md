@@ -1,4 +1,4 @@
-## # **:tw-1f493:  BIENVENIDOS AL REPOSITORIO  DE LAJENADRA OREJUELA! *:tw-1f493:
+## #   !BIENVENIDOS AL REPOSITORIO  DE LAJENADRA OREJUELA! 
 
 #### PRESENTACION: 
  
@@ -15,7 +15,7 @@
 
 **Todo esto con el fin de que el curso que estamos tomando  no sea tan cuadrado y se vulva algo mas diverdito y se vulva algo que nos guste hacer y no hacerlo por que nos toca o cosas asi esto nos ayudara a fomentar nuestro ingenio y nuestra creatividad.todo esto con el fin de que el curso que estamos tomando  no sea tan cuadrado y se vulva algo mas diverdito y se vulva algo que nos guste hacer y no hacerlo por que nos toca o cosas asi esto nos ayudara a fomentar nuestro ingenio y nuestra creatividad. Todo esto con el fin de que el curso que estamos tomando  no sea tan cuadrado y se vulva algo mas diverdito y se vulva algo que nos guste hacer y no hacerlo por que nos toca o cosas asi esto nos ayudara a fomentar nuestro ingenio y nuestra creatividad.todo esto con el fin de que el curso que estamos tomando  no sea tan cuadrado y se vulva algo mas diverdito y se vulva algo que nos guste hacer y no hacerlo por que nos toca o cosas asi esto nos ayudara a fomentar nuestro ingenio y nuestra creatividad.
 
- ###  mi conclucion es mi conclucion es :
+ ###  Mi conclucion es mi conclucion es :
 
 ** estamos en un espacio de aprendizaje y se vale todo entro de las normas y el cumpliumiento de los trabajos  que estamos en un espacio de aprendizaje y se vale todo entro de las normas y el cumpliumiento de los trabajos 
 
